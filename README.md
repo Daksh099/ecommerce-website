@@ -10,6 +10,6 @@ We welcome contributions! Feel free to fork the repository and submit pull reque
 
 Contact & Support
 
-For inquiries, support, or collaborations, reach out to us at support@stelis.com.
+For inquiries, support, or collaborations, reach out to us at 220160203087.daksh@gdgu.org.in
 
 Stay stylish, stay Stelis! 🚀
